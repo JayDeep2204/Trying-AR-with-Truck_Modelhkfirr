@@ -1,1 +1,0 @@
-# Trying-AR-with-Truck_Modelhkfirr
